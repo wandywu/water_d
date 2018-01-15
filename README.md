@@ -1,0 +1,1 @@
+Die meisten der menschlichen fähigkeiten IST Wasser, Wir haben Wasser ist nicht überleben, warten sie nicht, bis sie Sich durstig zu trinken, erklärt, dass sie schon ernste wasserknappheit, die täglich zu trinken, Immer vergessen, egal, echtzeit - funktion erinnern, Lassen sie sie nicht vergessen, gesundes trinkwasser.
